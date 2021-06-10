@@ -5,3 +5,4 @@ Today I woke up super late I will try to wake up at 8am tomorrow and be alot mor
 Today is June 8th, 2021.
 I am not sure what a .md file is but I will probably figure it out.
 That is all for this log see ya later.
+This is some new text I will right what I want I am tired of tapping it has not [roduced anything positive I will try not to tap.
